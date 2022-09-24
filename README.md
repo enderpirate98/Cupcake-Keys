@@ -6,4 +6,4 @@ This is intended for Yuzu and/or Ryujinx and I am not responsible for any Piracy
 
 Download At Your own risk.
 
-Download link: https://drive.google.com/drive/folders/1BX17CkQWxk2Ozig1LKPqyHTxqbhd9lh0?usp=sharing
+Download link: https://bit.ly/3dCSw5Q
